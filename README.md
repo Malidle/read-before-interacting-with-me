@@ -2,7 +2,7 @@ my conditions and interest.
 
 gib/greer
 
-adult • genderfluid • non-binary
+adult + genderfluid + non-binary
 
 he/they/it
 
