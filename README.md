@@ -26,6 +26,6 @@ Internet horror and ARGs
 
 – ❤ what I’m into right now ❤ –
 
-vpets, 2000s toys and media, slenderverse, creepypasta, tally hall, yabujin, breakcore
+vpets, 2000s toys and media, slenderverse, creepypasta, yabujin, deathcore, breakcore
 
 Please read this before interacting with me!
