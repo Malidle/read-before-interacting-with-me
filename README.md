@@ -1,6 +1,6 @@
 – ❤ my conditions and interest ❤ –
 
-gazu/greer
+gib/greer
 
 adult + bigender + non-binary
 
