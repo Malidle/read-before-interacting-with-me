@@ -4,7 +4,7 @@ gib/greer
 
 adult + bigender + non-binary
 
-he/they/it
+she/they/he
 
 autistic + psychotic + schizospec + bipolar
 
