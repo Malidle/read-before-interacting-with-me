@@ -10,7 +10,7 @@ autistic + psychotic + schizospec + bipolar
 
 linux and dragon nerd
 
-to find out more talk to giblian on discord
+to find out more talk to malidle on discord
 
 – ❤ special interests ❤ –
 
