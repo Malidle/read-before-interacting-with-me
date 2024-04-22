@@ -2,7 +2,7 @@
 
 mal/sha
 
-adult + bigender + non-binary
+adult + demisexual + intersex
 
 she/they
 
